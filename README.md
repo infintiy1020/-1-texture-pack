@@ -1,5 +1,5 @@
 https://github.com/user-attachments/files/32913020/byebye.mp3 (byebye)
 https://github.com/user-attachments/assets/ae247b30-56f0-417b-a355-22b392e6ec19 (arena wall)
- (#)
- (1)
+https://github.com/user-attachments/assets/ef5b7562-62c2-40a4-a224-a84da46d9fff (#)
+https://github.com/user-attachments/assets/6c0c99dc-6b4c-4f7b-abc9-307703e9863f (1)
 https://github.com/user-attachments/assets/9bf122a4-722c-437e-a57f-9c2afa2dd9f7 (#1)
